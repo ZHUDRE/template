@@ -1,0 +1,4 @@
+---
+slug: dynasty
+name: dynasty
+---
