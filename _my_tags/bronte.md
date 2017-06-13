@@ -1,0 +1,4 @@
+---
+slug: bronte
+name: bronte
+---
