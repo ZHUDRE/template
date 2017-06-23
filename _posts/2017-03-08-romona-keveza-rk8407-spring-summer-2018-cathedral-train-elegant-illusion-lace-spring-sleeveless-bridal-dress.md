@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-03-08'
+title: "Romona Keveza rk8407 Spring/Summer 2018 Cathedral Train Elegant Illusion Lace Spring Sleeveless Bridal Dress"
+category: Romona Keveza
+tags: ["lace","summer","prom","elegant","keveza"]
+image: http://www.idealgown.com/16894-thickbox_default/romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.jpg
+---
+Romona Keveza rk8407 Spring/Summer 2018 Cathedral Train Elegant Illusion Lace Spring Sleeveless Bridal Dress
+
+On Sales: **$459.98**
+<a href="https://www.idealgown.com/en/romona-keveza/6698-romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/16894-thickbox_default/romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.jpg" alt="Romona Keveza rk8407 Spring/Summer 2018 Cathedral Train Elegant Illusion Lace Spring Sleeveless Bridal Dress 0" /></a>
+<a href="https://www.idealgown.com/en/romona-keveza/6698-romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/16899-thickbox_default/romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.jpg" alt="Romona Keveza rk8407 Spring/Summer 2018 Cathedral Train Elegant Illusion Lace Spring Sleeveless Bridal Dress 1" /></a>
+<a href="https://www.idealgown.com/en/romona-keveza/6698-romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/16898-thickbox_default/romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.jpg" alt="Romona Keveza rk8407 Spring/Summer 2018 Cathedral Train Elegant Illusion Lace Spring Sleeveless Bridal Dress 2" /></a>
+<a href="https://www.idealgown.com/en/romona-keveza/6698-romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/16897-thickbox_default/romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.jpg" alt="Romona Keveza rk8407 Spring/Summer 2018 Cathedral Train Elegant Illusion Lace Spring Sleeveless Bridal Dress 3" /></a>
+<a href="https://www.idealgown.com/en/romona-keveza/6698-romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/16896-thickbox_default/romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.jpg" alt="Romona Keveza rk8407 Spring/Summer 2018 Cathedral Train Elegant Illusion Lace Spring Sleeveless Bridal Dress 4" /></a>
+<a href="https://www.idealgown.com/en/romona-keveza/6698-romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/16895-thickbox_default/romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.jpg" alt="Romona Keveza rk8407 Spring/Summer 2018 Cathedral Train Elegant Illusion Lace Spring Sleeveless Bridal Dress 5" /></a>
+
+Buy it: [Romona Keveza rk8407 Spring/Summer 2018 Cathedral Train Elegant Illusion Lace Spring Sleeveless Bridal Dress](https://www.idealgown.com/en/romona-keveza/6698-romona-keveza-rk8407-spring-summer-2018-cathedral-train-elegant-illusion-lace-spring-sleeveless-bridal-dress.html "Romona Keveza rk8407 Spring/Summer 2018 Cathedral Train Elegant Illusion Lace Spring Sleeveless Bridal Dress")
+
+View more: [Romona Keveza](https://www.idealgown.com/en/106-romona-keveza "Romona Keveza")
