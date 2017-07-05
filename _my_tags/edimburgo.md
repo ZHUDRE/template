@@ -1,0 +1,4 @@
+---
+slug: edimburgo
+name: edimburgo
+---
