@@ -1,0 +1,4 @@
+---
+slug: kinsey
+name: kinsey
+---
