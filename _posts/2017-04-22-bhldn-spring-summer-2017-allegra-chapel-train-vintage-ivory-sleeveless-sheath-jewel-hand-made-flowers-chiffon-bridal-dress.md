@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-04-22'
+title: "BHLDN Spring/Summer 2017 Allegra Chapel Train Vintage Ivory Sleeveless Sheath Jewel Hand-made Flowers Chiffon Bridal Dress"
+category: BHLDN
+tags: ["demure","prom","chapel","jewel","dress"]
+image: http://www.idealgown.com/19553-thickbox_default/bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.jpg
+---
+BHLDN Spring/Summer 2017 Allegra Chapel Train Vintage Ivory Sleeveless Sheath Jewel Hand-made Flowers Chiffon Bridal Dress
+
+On Sales: **$458.98**
+<a href="https://www.idealgown.com/en/bhldn/7640-bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/19553-thickbox_default/bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.jpg" alt="BHLDN Spring/Summer 2017 Allegra Chapel Train Vintage Ivory Sleeveless Sheath Jewel Hand-made Flowers Chiffon Bridal Dress 0" /></a>
+<a href="https://www.idealgown.com/en/bhldn/7640-bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/19558-thickbox_default/bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.jpg" alt="BHLDN Spring/Summer 2017 Allegra Chapel Train Vintage Ivory Sleeveless Sheath Jewel Hand-made Flowers Chiffon Bridal Dress 1" /></a>
+<a href="https://www.idealgown.com/en/bhldn/7640-bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/19557-thickbox_default/bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.jpg" alt="BHLDN Spring/Summer 2017 Allegra Chapel Train Vintage Ivory Sleeveless Sheath Jewel Hand-made Flowers Chiffon Bridal Dress 2" /></a>
+<a href="https://www.idealgown.com/en/bhldn/7640-bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/19556-thickbox_default/bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.jpg" alt="BHLDN Spring/Summer 2017 Allegra Chapel Train Vintage Ivory Sleeveless Sheath Jewel Hand-made Flowers Chiffon Bridal Dress 3" /></a>
+<a href="https://www.idealgown.com/en/bhldn/7640-bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/19555-thickbox_default/bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.jpg" alt="BHLDN Spring/Summer 2017 Allegra Chapel Train Vintage Ivory Sleeveless Sheath Jewel Hand-made Flowers Chiffon Bridal Dress 4" /></a>
+<a href="https://www.idealgown.com/en/bhldn/7640-bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/19554-thickbox_default/bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.jpg" alt="BHLDN Spring/Summer 2017 Allegra Chapel Train Vintage Ivory Sleeveless Sheath Jewel Hand-made Flowers Chiffon Bridal Dress 5" /></a>
+
+Buy it: [BHLDN Spring/Summer 2017 Allegra Chapel Train Vintage Ivory Sleeveless Sheath Jewel Hand-made Flowers Chiffon Bridal Dress](https://www.idealgown.com/en/bhldn/7640-bhldn-spring-summer-2017-allegra-chapel-train-vintage-ivory-sleeveless-sheath-jewel-hand-made-flowers-chiffon-bridal-dress.html "BHLDN Spring/Summer 2017 Allegra Chapel Train Vintage Ivory Sleeveless Sheath Jewel Hand-made Flowers Chiffon Bridal Dress")
+
+View more: [BHLDN](https://www.idealgown.com/en/149-bhldn "BHLDN")
