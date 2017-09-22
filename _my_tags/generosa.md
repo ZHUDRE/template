@@ -1,0 +1,4 @@
+---
+slug: generosa
+name: generosa
+---
