@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-08-04'
+title: "Kelly Faetanini Portia Spring/Summer 2018 Chapel Train Elegant Black Sheath V-Neck Split Front Long Sleeves Lace Bridal Gown"
+category: Kelly Faetanini
+tags: ["elegant","bridal","black","wedding","split"]
+image: http://www.idealgown.com/17439-thickbox_default/kelly-faetanini-portia-spring-summer-2018-chapel-train-elegant-black-sheath-v-neck-split-front-long-sleeves-lace-bridal-gown.jpg
+---
+Kelly Faetanini Portia Spring/Summer 2018 Chapel Train Elegant Black Sheath V-Neck Split Front Long Sleeves Lace Bridal Gown
+
+On Sales: **$329.98**
+<a href="https://www.idealgown.com/en/kelly-faetanini/6838-kelly-faetanini-portia-spring-summer-2018-chapel-train-elegant-black-sheath-v-neck-split-front-long-sleeves-lace-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/17439-thickbox_default/kelly-faetanini-portia-spring-summer-2018-chapel-train-elegant-black-sheath-v-neck-split-front-long-sleeves-lace-bridal-gown.jpg" alt="Kelly Faetanini Portia Spring/Summer 2018 Chapel Train Elegant Black Sheath V-Neck Split Front Long Sleeves Lace Bridal Gown 0" /></a>
+<a href="https://www.idealgown.com/en/kelly-faetanini/6838-kelly-faetanini-portia-spring-summer-2018-chapel-train-elegant-black-sheath-v-neck-split-front-long-sleeves-lace-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/17443-thickbox_default/kelly-faetanini-portia-spring-summer-2018-chapel-train-elegant-black-sheath-v-neck-split-front-long-sleeves-lace-bridal-gown.jpg" alt="Kelly Faetanini Portia Spring/Summer 2018 Chapel Train Elegant Black Sheath V-Neck Split Front Long Sleeves Lace Bridal Gown 1" /></a>
+<a href="https://www.idealgown.com/en/kelly-faetanini/6838-kelly-faetanini-portia-spring-summer-2018-chapel-train-elegant-black-sheath-v-neck-split-front-long-sleeves-lace-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/17442-thickbox_default/kelly-faetanini-portia-spring-summer-2018-chapel-train-elegant-black-sheath-v-neck-split-front-long-sleeves-lace-bridal-gown.jpg" alt="Kelly Faetanini Portia Spring/Summer 2018 Chapel Train Elegant Black Sheath V-Neck Split Front Long Sleeves Lace Bridal Gown 2" /></a>
+<a href="https://www.idealgown.com/en/kelly-faetanini/6838-kelly-faetanini-portia-spring-summer-2018-chapel-train-elegant-black-sheath-v-neck-split-front-long-sleeves-lace-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/17441-thickbox_default/kelly-faetanini-portia-spring-summer-2018-chapel-train-elegant-black-sheath-v-neck-split-front-long-sleeves-lace-bridal-gown.jpg" alt="Kelly Faetanini Portia Spring/Summer 2018 Chapel Train Elegant Black Sheath V-Neck Split Front Long Sleeves Lace Bridal Gown 3" /></a>
+<a href="https://www.idealgown.com/en/kelly-faetanini/6838-kelly-faetanini-portia-spring-summer-2018-chapel-train-elegant-black-sheath-v-neck-split-front-long-sleeves-lace-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/17440-thickbox_default/kelly-faetanini-portia-spring-summer-2018-chapel-train-elegant-black-sheath-v-neck-split-front-long-sleeves-lace-bridal-gown.jpg" alt="Kelly Faetanini Portia Spring/Summer 2018 Chapel Train Elegant Black Sheath V-Neck Split Front Long Sleeves Lace Bridal Gown 4" /></a>
+
+Buy it: [Kelly Faetanini Portia Spring/Summer 2018 Chapel Train Elegant Black Sheath V-Neck Split Front Long Sleeves Lace Bridal Gown](https://www.idealgown.com/en/kelly-faetanini/6838-kelly-faetanini-portia-spring-summer-2018-chapel-train-elegant-black-sheath-v-neck-split-front-long-sleeves-lace-bridal-gown.html "Kelly Faetanini Portia Spring/Summer 2018 Chapel Train Elegant Black Sheath V-Neck Split Front Long Sleeves Lace Bridal Gown")
+
+View more: [Kelly Faetanini](https://www.idealgown.com/en/117-kelly-faetanini "Kelly Faetanini")
