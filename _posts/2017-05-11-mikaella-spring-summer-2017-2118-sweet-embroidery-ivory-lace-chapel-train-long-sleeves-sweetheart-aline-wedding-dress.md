@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-05-11'
+title: "Mikaella Spring/Summer 2017 2118 Sweet Embroidery Ivory Lace Chapel Train Long Sleeves Sweetheart Aline Wedding Dress"
+category: Mikaella
+tags: ["gowns","spring","dresses","ivory","embroidery"]
+image: http://www.idealgown.com/22020-thickbox_default/mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.jpg
+---
+Mikaella Spring/Summer 2017 2118 Sweet Embroidery Ivory Lace Chapel Train Long Sleeves Sweetheart Aline Wedding Dress
+
+On Sales: **$338.98**
+<a href="https://www.idealgown.com/en/mikaella/8325-mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/22020-thickbox_default/mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.jpg" alt="Mikaella Spring/Summer 2017 2118 Sweet Embroidery Ivory Lace Chapel Train Long Sleeves Sweetheart Aline Wedding Dress 0" /></a>
+<a href="https://www.idealgown.com/en/mikaella/8325-mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/22025-thickbox_default/mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.jpg" alt="Mikaella Spring/Summer 2017 2118 Sweet Embroidery Ivory Lace Chapel Train Long Sleeves Sweetheart Aline Wedding Dress 1" /></a>
+<a href="https://www.idealgown.com/en/mikaella/8325-mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/22024-thickbox_default/mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.jpg" alt="Mikaella Spring/Summer 2017 2118 Sweet Embroidery Ivory Lace Chapel Train Long Sleeves Sweetheart Aline Wedding Dress 2" /></a>
+<a href="https://www.idealgown.com/en/mikaella/8325-mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/22023-thickbox_default/mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.jpg" alt="Mikaella Spring/Summer 2017 2118 Sweet Embroidery Ivory Lace Chapel Train Long Sleeves Sweetheart Aline Wedding Dress 3" /></a>
+<a href="https://www.idealgown.com/en/mikaella/8325-mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/22022-thickbox_default/mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.jpg" alt="Mikaella Spring/Summer 2017 2118 Sweet Embroidery Ivory Lace Chapel Train Long Sleeves Sweetheart Aline Wedding Dress 4" /></a>
+<a href="https://www.idealgown.com/en/mikaella/8325-mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//www.idealgown.com/22021-thickbox_default/mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.jpg" alt="Mikaella Spring/Summer 2017 2118 Sweet Embroidery Ivory Lace Chapel Train Long Sleeves Sweetheart Aline Wedding Dress 5" /></a>
+
+Buy it: [Mikaella Spring/Summer 2017 2118 Sweet Embroidery Ivory Lace Chapel Train Long Sleeves Sweetheart Aline Wedding Dress](https://www.idealgown.com/en/mikaella/8325-mikaella-spring-summer-2017-2118-sweet-embroidery-ivory-lace-chapel-train-long-sleeves-sweetheart-aline-wedding-dress.html "Mikaella Spring/Summer 2017 2118 Sweet Embroidery Ivory Lace Chapel Train Long Sleeves Sweetheart Aline Wedding Dress")
+
+View more: [Mikaella](https://www.idealgown.com/en/123-mikaella "Mikaella")
