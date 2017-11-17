@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-09-19'
+title: "Ella Rosa Spring/Summer 2017 BE358 Sleeveless Ivory Sweet Straps Sweep Train Ball Gown Tulle Beading Wedding Dress"
+category: Ella Rosa Bridal
+tags: ["tulle","train","sleeveless","ivory","wedding"]
+image: http://img.idealgown.com/21849-thickbox_default/ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.jpg
+---
+Ella Rosa Spring/Summer 2017 BE358 Sleeveless Ivory Sweet Straps Sweep Train Ball Gown Tulle Beading Wedding Dress
+
+On Sales: **$368.98**
+<a href="https://www.idealgown.com/en/ella-rosa-bridal/8225-ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/21849-thickbox_default/ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.jpg" alt="Ella Rosa Spring/Summer 2017 BE358 Sleeveless Ivory Sweet Straps Sweep Train Ball Gown Tulle Beading Wedding Dress 0" /></a>
+<a href="https://www.idealgown.com/en/ella-rosa-bridal/8225-ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/21854-thickbox_default/ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.jpg" alt="Ella Rosa Spring/Summer 2017 BE358 Sleeveless Ivory Sweet Straps Sweep Train Ball Gown Tulle Beading Wedding Dress 1" /></a>
+<a href="https://www.idealgown.com/en/ella-rosa-bridal/8225-ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/21853-thickbox_default/ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.jpg" alt="Ella Rosa Spring/Summer 2017 BE358 Sleeveless Ivory Sweet Straps Sweep Train Ball Gown Tulle Beading Wedding Dress 2" /></a>
+<a href="https://www.idealgown.com/en/ella-rosa-bridal/8225-ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/21852-thickbox_default/ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.jpg" alt="Ella Rosa Spring/Summer 2017 BE358 Sleeveless Ivory Sweet Straps Sweep Train Ball Gown Tulle Beading Wedding Dress 3" /></a>
+<a href="https://www.idealgown.com/en/ella-rosa-bridal/8225-ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/21851-thickbox_default/ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.jpg" alt="Ella Rosa Spring/Summer 2017 BE358 Sleeveless Ivory Sweet Straps Sweep Train Ball Gown Tulle Beading Wedding Dress 4" /></a>
+<a href="https://www.idealgown.com/en/ella-rosa-bridal/8225-ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/21850-thickbox_default/ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.jpg" alt="Ella Rosa Spring/Summer 2017 BE358 Sleeveless Ivory Sweet Straps Sweep Train Ball Gown Tulle Beading Wedding Dress 5" /></a>
+
+Buy it: [Ella Rosa Spring/Summer 2017 BE358 Sleeveless Ivory Sweet Straps Sweep Train Ball Gown Tulle Beading Wedding Dress](https://www.idealgown.com/en/ella-rosa-bridal/8225-ella-rosa-spring-summer-2017-be358-sleeveless-ivory-sweet-straps-sweep-train-ball-gown-tulle-beading-wedding-dress.html "Ella Rosa Spring/Summer 2017 BE358 Sleeveless Ivory Sweet Straps Sweep Train Ball Gown Tulle Beading Wedding Dress")
+
+View more: [Ella Rosa Bridal](https://www.idealgown.com/en/60-ella-rosa-bridal "Ella Rosa Bridal")
