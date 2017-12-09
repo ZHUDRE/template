@@ -3,7 +3,7 @@ layout: post
 date: '2017-07-06'
 title: "Lillian West Fall 2013 Style 6303"
 category: 
-tags: ["lillian","demure","west","gowns","charming"]
+tags: ["lillian","prom","gowns","demure","charming"]
 image: http://img.idealgown.com/8275-thickbox_default/lillian-west-fall-2013-style-6303.jpg
 ---
 Lillian West Fall 2013 Style 6303
