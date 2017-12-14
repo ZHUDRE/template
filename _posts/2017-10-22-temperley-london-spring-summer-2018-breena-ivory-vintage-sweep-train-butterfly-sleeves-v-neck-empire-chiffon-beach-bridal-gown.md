@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-10-22'
+title: "Temperley London Spring/Summer 2018 Breena Ivory Vintage Sweep Train Butterfly Sleeves V-Neck Empire Chiffon Beach Bridal Gown"
+category: Temperley London
+tags: ["sweep","chiffon","gowns","vintage","temperley"]
+image: http://img.idealgown.com/18834-thickbox_default/temperley-london-spring-summer-2018-breena-ivory-vintage-sweep-train-butterfly-sleeves-v-neck-empire-chiffon-beach-bridal-gown.jpg
+---
+Temperley London Spring/Summer 2018 Breena Ivory Vintage Sweep Train Butterfly Sleeves V-Neck Empire Chiffon Beach Bridal Gown
+
+On Sales: **$458.98**
+<a href="https://www.idealgown.com/en/temperley-london/7210-temperley-london-spring-summer-2018-breena-ivory-vintage-sweep-train-butterfly-sleeves-v-neck-empire-chiffon-beach-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/18834-thickbox_default/temperley-london-spring-summer-2018-breena-ivory-vintage-sweep-train-butterfly-sleeves-v-neck-empire-chiffon-beach-bridal-gown.jpg" alt="Temperley London Spring/Summer 2018 Breena Ivory Vintage Sweep Train Butterfly Sleeves V-Neck Empire Chiffon Beach Bridal Gown 0" /></a>
+<a href="https://www.idealgown.com/en/temperley-london/7210-temperley-london-spring-summer-2018-breena-ivory-vintage-sweep-train-butterfly-sleeves-v-neck-empire-chiffon-beach-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/18838-thickbox_default/temperley-london-spring-summer-2018-breena-ivory-vintage-sweep-train-butterfly-sleeves-v-neck-empire-chiffon-beach-bridal-gown.jpg" alt="Temperley London Spring/Summer 2018 Breena Ivory Vintage Sweep Train Butterfly Sleeves V-Neck Empire Chiffon Beach Bridal Gown 1" /></a>
+<a href="https://www.idealgown.com/en/temperley-london/7210-temperley-london-spring-summer-2018-breena-ivory-vintage-sweep-train-butterfly-sleeves-v-neck-empire-chiffon-beach-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/18837-thickbox_default/temperley-london-spring-summer-2018-breena-ivory-vintage-sweep-train-butterfly-sleeves-v-neck-empire-chiffon-beach-bridal-gown.jpg" alt="Temperley London Spring/Summer 2018 Breena Ivory Vintage Sweep Train Butterfly Sleeves V-Neck Empire Chiffon Beach Bridal Gown 2" /></a>
+<a href="https://www.idealgown.com/en/temperley-london/7210-temperley-london-spring-summer-2018-breena-ivory-vintage-sweep-train-butterfly-sleeves-v-neck-empire-chiffon-beach-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/18836-thickbox_default/temperley-london-spring-summer-2018-breena-ivory-vintage-sweep-train-butterfly-sleeves-v-neck-empire-chiffon-beach-bridal-gown.jpg" alt="Temperley London Spring/Summer 2018 Breena Ivory Vintage Sweep Train Butterfly Sleeves V-Neck Empire Chiffon Beach Bridal Gown 3" /></a>
+<a href="https://www.idealgown.com/en/temperley-london/7210-temperley-london-spring-summer-2018-breena-ivory-vintage-sweep-train-butterfly-sleeves-v-neck-empire-chiffon-beach-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/18835-thickbox_default/temperley-london-spring-summer-2018-breena-ivory-vintage-sweep-train-butterfly-sleeves-v-neck-empire-chiffon-beach-bridal-gown.jpg" alt="Temperley London Spring/Summer 2018 Breena Ivory Vintage Sweep Train Butterfly Sleeves V-Neck Empire Chiffon Beach Bridal Gown 4" /></a>
+
+Buy it: [Temperley London Spring/Summer 2018 Breena Ivory Vintage Sweep Train Butterfly Sleeves V-Neck Empire Chiffon Beach Bridal Gown](https://www.idealgown.com/en/temperley-london/7210-temperley-london-spring-summer-2018-breena-ivory-vintage-sweep-train-butterfly-sleeves-v-neck-empire-chiffon-beach-bridal-gown.html "Temperley London Spring/Summer 2018 Breena Ivory Vintage Sweep Train Butterfly Sleeves V-Neck Empire Chiffon Beach Bridal Gown")
+
+View more: [Temperley London](https://www.idealgown.com/en/142-temperley-london "Temperley London")
