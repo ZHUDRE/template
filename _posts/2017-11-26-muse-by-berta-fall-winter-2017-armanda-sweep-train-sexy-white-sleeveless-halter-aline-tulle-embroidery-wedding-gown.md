@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-11-26'
+title: "Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown"
+category: Berta
+tags: ["embroidery","wedding","berta","sleeveless","white"]
+image: http://img.idealgown.com/25087-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg
+---
+Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown
+
+On Sales: **$378.98**
+<a href="https://www.idealgown.com/en/berta/9852-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25087-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 0" /></a>
+<a href="https://www.idealgown.com/en/berta/9852-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25092-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 1" /></a>
+<a href="https://www.idealgown.com/en/berta/9852-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25091-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 2" /></a>
+<a href="https://www.idealgown.com/en/berta/9852-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25090-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 3" /></a>
+<a href="https://www.idealgown.com/en/berta/9852-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25089-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 4" /></a>
+<a href="https://www.idealgown.com/en/berta/9852-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25088-thickbox_default/muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.jpg" alt="Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown 5" /></a>
+
+Buy it: [Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown](https://www.idealgown.com/en/berta/9852-muse-by-berta-fall-winter-2017-armanda-sweep-train-sexy-white-sleeveless-halter-aline-tulle-embroidery-wedding-gown.html "Muse by Berta Fall/Winter 2017 ARMANDA Sweep Train Sexy White Sleeveless Halter Aline Tulle Embroidery Wedding Gown")
+
+View more: [Berta](https://www.idealgown.com/en/116-berta "Berta")
