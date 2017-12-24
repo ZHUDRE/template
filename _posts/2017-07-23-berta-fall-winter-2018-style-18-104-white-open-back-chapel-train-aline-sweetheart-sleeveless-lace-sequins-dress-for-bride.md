@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-07-23'
+title: "Berta Fall/Winter 2018 Style 18-104 White Open Back Chapel Train Aline Sweetheart Sleeveless Lace Sequins Dress For Bride"
+category: Berta
+tags: ["winter","sequins","prom","wedding","sleeveless"]
+image: http://img.idealgown.com/25616-thickbox_default/berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.jpg
+---
+Berta Fall/Winter 2018 Style 18-104 White Open Back Chapel Train Aline Sweetheart Sleeveless Lace Sequins Dress For Bride
+
+On Sales: **$488.98**
+<a href="https://www.idealgown.com/en/berta/10014-berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25616-thickbox_default/berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.jpg" alt="Berta Fall/Winter 2018 Style 18-104 White Open Back Chapel Train Aline Sweetheart Sleeveless Lace Sequins Dress For Bride 0" /></a>
+<a href="https://www.idealgown.com/en/berta/10014-berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25621-thickbox_default/berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.jpg" alt="Berta Fall/Winter 2018 Style 18-104 White Open Back Chapel Train Aline Sweetheart Sleeveless Lace Sequins Dress For Bride 1" /></a>
+<a href="https://www.idealgown.com/en/berta/10014-berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25620-thickbox_default/berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.jpg" alt="Berta Fall/Winter 2018 Style 18-104 White Open Back Chapel Train Aline Sweetheart Sleeveless Lace Sequins Dress For Bride 2" /></a>
+<a href="https://www.idealgown.com/en/berta/10014-berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25619-thickbox_default/berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.jpg" alt="Berta Fall/Winter 2018 Style 18-104 White Open Back Chapel Train Aline Sweetheart Sleeveless Lace Sequins Dress For Bride 3" /></a>
+<a href="https://www.idealgown.com/en/berta/10014-berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25618-thickbox_default/berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.jpg" alt="Berta Fall/Winter 2018 Style 18-104 White Open Back Chapel Train Aline Sweetheart Sleeveless Lace Sequins Dress For Bride 4" /></a>
+<a href="https://www.idealgown.com/en/berta/10014-berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25617-thickbox_default/berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.jpg" alt="Berta Fall/Winter 2018 Style 18-104 White Open Back Chapel Train Aline Sweetheart Sleeveless Lace Sequins Dress For Bride 5" /></a>
+
+Buy it: [Berta Fall/Winter 2018 Style 18-104 White Open Back Chapel Train Aline Sweetheart Sleeveless Lace Sequins Dress For Bride](https://www.idealgown.com/en/berta/10014-berta-fall-winter-2018-style-18-104-white-open-back-chapel-train-aline-sweetheart-sleeveless-lace-sequins-dress-for-bride.html "Berta Fall/Winter 2018 Style 18-104 White Open Back Chapel Train Aline Sweetheart Sleeveless Lace Sequins Dress For Bride")
+
+View more: [Berta](https://www.idealgown.com/en/116-berta "Berta")
