@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-07-29'
+title: "Ellis Bridal 2018 Blush Ballgown|Style 12263 Sweet Chapel Train Blush Sweetheart Ball Gown Embroidery Tulle Dress For Bride"
+category: Ellis Bridal
+tags: ["sweetheart","tulle","dresses","prom","gown"]
+image: http://img.idealgown.com/24362-thickbox_default/ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.jpg
+---
+Ellis Bridal 2018 Blush Ballgown|Style 12263 Sweet Chapel Train Blush Sweetheart Ball Gown Embroidery Tulle Dress For Bride
+
+On Sales: **$418.98**
+<a href="https://www.idealgown.com/en/ellis-bridal/9607-ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/24362-thickbox_default/ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.jpg" alt="Ellis Bridal 2018 Blush Ballgown|Style 12263 Sweet Chapel Train Blush Sweetheart Ball Gown Embroidery Tulle Dress For Bride 0" /></a>
+<a href="https://www.idealgown.com/en/ellis-bridal/9607-ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/24366-thickbox_default/ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.jpg" alt="Ellis Bridal 2018 Blush Ballgown|Style 12263 Sweet Chapel Train Blush Sweetheart Ball Gown Embroidery Tulle Dress For Bride 1" /></a>
+<a href="https://www.idealgown.com/en/ellis-bridal/9607-ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/24365-thickbox_default/ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.jpg" alt="Ellis Bridal 2018 Blush Ballgown|Style 12263 Sweet Chapel Train Blush Sweetheart Ball Gown Embroidery Tulle Dress For Bride 2" /></a>
+<a href="https://www.idealgown.com/en/ellis-bridal/9607-ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/24364-thickbox_default/ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.jpg" alt="Ellis Bridal 2018 Blush Ballgown|Style 12263 Sweet Chapel Train Blush Sweetheart Ball Gown Embroidery Tulle Dress For Bride 3" /></a>
+<a href="https://www.idealgown.com/en/ellis-bridal/9607-ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/24363-thickbox_default/ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.jpg" alt="Ellis Bridal 2018 Blush Ballgown|Style 12263 Sweet Chapel Train Blush Sweetheart Ball Gown Embroidery Tulle Dress For Bride 4" /></a>
+
+Buy it: [Ellis Bridal 2018 Blush Ballgown|Style 12263 Sweet Chapel Train Blush Sweetheart Ball Gown Embroidery Tulle Dress For Bride](https://www.idealgown.com/en/ellis-bridal/9607-ellis-bridal-2018-blush-ballgown-style-12263-sweet-chapel-train-blush-sweetheart-ball-gown-embroidery-tulle-dress-for-bride.html "Ellis Bridal 2018 Blush Ballgown|Style 12263 Sweet Chapel Train Blush Sweetheart Ball Gown Embroidery Tulle Dress For Bride")
+
+View more: [Ellis Bridal](https://www.idealgown.com/en/171-ellis-bridal "Ellis Bridal")
