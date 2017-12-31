@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-11-02'
+title: "Christos Costarellos Spring/Summer 2018 BR18 30 Aline Sleeveless Spaghetti Straps Sweep Train Sweet Lace Beach Bridal Dress"
+category: Christos
+tags: ["costarellos","wedding","charming","gowns","sweep"]
+image: http://img.idealgown.com/22939-thickbox_default/christos-costarellos-spring-summer-2018-br18-30-aline-sleeveless-spaghetti-straps-sweep-train-sweet-lace-beach-bridal-dress.jpg
+---
+Christos Costarellos Spring/Summer 2018 BR18 30 Aline Sleeveless Spaghetti Straps Sweep Train Sweet Lace Beach Bridal Dress
+
+On Sales: **$268.98**
+<a href="https://www.idealgown.com/en/christos/8901-christos-costarellos-spring-summer-2018-br18-30-aline-sleeveless-spaghetti-straps-sweep-train-sweet-lace-beach-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/22939-thickbox_default/christos-costarellos-spring-summer-2018-br18-30-aline-sleeveless-spaghetti-straps-sweep-train-sweet-lace-beach-bridal-dress.jpg" alt="Christos Costarellos Spring/Summer 2018 BR18 30 Aline Sleeveless Spaghetti Straps Sweep Train Sweet Lace Beach Bridal Dress 0" /></a>
+<a href="https://www.idealgown.com/en/christos/8901-christos-costarellos-spring-summer-2018-br18-30-aline-sleeveless-spaghetti-straps-sweep-train-sweet-lace-beach-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/22943-thickbox_default/christos-costarellos-spring-summer-2018-br18-30-aline-sleeveless-spaghetti-straps-sweep-train-sweet-lace-beach-bridal-dress.jpg" alt="Christos Costarellos Spring/Summer 2018 BR18 30 Aline Sleeveless Spaghetti Straps Sweep Train Sweet Lace Beach Bridal Dress 1" /></a>
+<a href="https://www.idealgown.com/en/christos/8901-christos-costarellos-spring-summer-2018-br18-30-aline-sleeveless-spaghetti-straps-sweep-train-sweet-lace-beach-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/22942-thickbox_default/christos-costarellos-spring-summer-2018-br18-30-aline-sleeveless-spaghetti-straps-sweep-train-sweet-lace-beach-bridal-dress.jpg" alt="Christos Costarellos Spring/Summer 2018 BR18 30 Aline Sleeveless Spaghetti Straps Sweep Train Sweet Lace Beach Bridal Dress 2" /></a>
+<a href="https://www.idealgown.com/en/christos/8901-christos-costarellos-spring-summer-2018-br18-30-aline-sleeveless-spaghetti-straps-sweep-train-sweet-lace-beach-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/22941-thickbox_default/christos-costarellos-spring-summer-2018-br18-30-aline-sleeveless-spaghetti-straps-sweep-train-sweet-lace-beach-bridal-dress.jpg" alt="Christos Costarellos Spring/Summer 2018 BR18 30 Aline Sleeveless Spaghetti Straps Sweep Train Sweet Lace Beach Bridal Dress 3" /></a>
+<a href="https://www.idealgown.com/en/christos/8901-christos-costarellos-spring-summer-2018-br18-30-aline-sleeveless-spaghetti-straps-sweep-train-sweet-lace-beach-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/22940-thickbox_default/christos-costarellos-spring-summer-2018-br18-30-aline-sleeveless-spaghetti-straps-sweep-train-sweet-lace-beach-bridal-dress.jpg" alt="Christos Costarellos Spring/Summer 2018 BR18 30 Aline Sleeveless Spaghetti Straps Sweep Train Sweet Lace Beach Bridal Dress 4" /></a>
+
+Buy it: [Christos Costarellos Spring/Summer 2018 BR18 30 Aline Sleeveless Spaghetti Straps Sweep Train Sweet Lace Beach Bridal Dress](https://www.idealgown.com/en/christos/8901-christos-costarellos-spring-summer-2018-br18-30-aline-sleeveless-spaghetti-straps-sweep-train-sweet-lace-beach-bridal-dress.html "Christos Costarellos Spring/Summer 2018 BR18 30 Aline Sleeveless Spaghetti Straps Sweep Train Sweet Lace Beach Bridal Dress")
+
+View more: [Christos](https://www.idealgown.com/en/166-christos "Christos")
