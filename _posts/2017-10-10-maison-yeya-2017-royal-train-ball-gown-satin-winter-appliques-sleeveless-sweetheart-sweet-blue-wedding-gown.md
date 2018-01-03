@@ -1,0 +1,22 @@
+---
+layout: post
+date: '2017-10-10'
+title: "Maison Yeya 2017 Royal Train Ball Gown Satin Winter Appliques Sleeveless Sweetheart Sweet Blue Wedding Gown"
+category: Maison Yeya
+tags: ["demure","sleeveless","yeya","gowns","gown"]
+image: http://img.idealgown.com/26913-thickbox_default/maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.jpg
+---
+Maison Yeya 2017 Royal Train Ball Gown Satin Winter Appliques Sleeveless Sweetheart Sweet Blue Wedding Gown
+
+On Sales: **$528.98**
+<a href="https://www.idealgown.com/en/maison-yeya/10528-maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26913-thickbox_default/maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.jpg" alt="Maison Yeya 2017 Royal Train Ball Gown Satin Winter Appliques Sleeveless Sweetheart Sweet Blue Wedding Gown 0" /></a>
+<a href="https://www.idealgown.com/en/maison-yeya/10528-maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26919-thickbox_default/maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.jpg" alt="Maison Yeya 2017 Royal Train Ball Gown Satin Winter Appliques Sleeveless Sweetheart Sweet Blue Wedding Gown 1" /></a>
+<a href="https://www.idealgown.com/en/maison-yeya/10528-maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26918-thickbox_default/maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.jpg" alt="Maison Yeya 2017 Royal Train Ball Gown Satin Winter Appliques Sleeveless Sweetheart Sweet Blue Wedding Gown 2" /></a>
+<a href="https://www.idealgown.com/en/maison-yeya/10528-maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26917-thickbox_default/maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.jpg" alt="Maison Yeya 2017 Royal Train Ball Gown Satin Winter Appliques Sleeveless Sweetheart Sweet Blue Wedding Gown 3" /></a>
+<a href="https://www.idealgown.com/en/maison-yeya/10528-maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26916-thickbox_default/maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.jpg" alt="Maison Yeya 2017 Royal Train Ball Gown Satin Winter Appliques Sleeveless Sweetheart Sweet Blue Wedding Gown 4" /></a>
+<a href="https://www.idealgown.com/en/maison-yeya/10528-maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26915-thickbox_default/maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.jpg" alt="Maison Yeya 2017 Royal Train Ball Gown Satin Winter Appliques Sleeveless Sweetheart Sweet Blue Wedding Gown 5" /></a>
+<a href="https://www.idealgown.com/en/maison-yeya/10528-maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26914-thickbox_default/maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.jpg" alt="Maison Yeya 2017 Royal Train Ball Gown Satin Winter Appliques Sleeveless Sweetheart Sweet Blue Wedding Gown 6" /></a>
+
+Buy it: [Maison Yeya 2017 Royal Train Ball Gown Satin Winter Appliques Sleeveless Sweetheart Sweet Blue Wedding Gown](https://www.idealgown.com/en/maison-yeya/10528-maison-yeya-2017-royal-train-ball-gown-satin-winter-appliques-sleeveless-sweetheart-sweet-blue-wedding-gown.html "Maison Yeya 2017 Royal Train Ball Gown Satin Winter Appliques Sleeveless Sweetheart Sweet Blue Wedding Gown")
+
+View more: [Maison Yeya](https://www.idealgown.com/en/173-maison-yeya "Maison Yeya")
