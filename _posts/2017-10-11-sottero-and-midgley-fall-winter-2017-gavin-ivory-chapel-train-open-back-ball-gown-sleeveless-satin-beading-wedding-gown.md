@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-10-11'
+title: "Sottero and Midgley Fall/Winter 2017 Gavin Ivory Chapel Train Open Back Ball Gown Sleeveless Satin Beading Wedding Gown"
+category: Sottero and Midgley
+tags: ["wedding","demure","sleeveless","sottero","elegant"]
+image: http://img.idealgown.com/17692-thickbox_default/sottero-and-midgley-fall-winter-2017-gavin-ivory-chapel-train-open-back-ball-gown-sleeveless-satin-beading-wedding-gown.jpg
+---
+Sottero and Midgley Fall/Winter 2017 Gavin Ivory Chapel Train Open Back Ball Gown Sleeveless Satin Beading Wedding Gown
+
+On Sales: **$459.98**
+<a href="https://www.idealgown.com/en/sottero-and-midgley/6900-sottero-and-midgley-fall-winter-2017-gavin-ivory-chapel-train-open-back-ball-gown-sleeveless-satin-beading-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/17692-thickbox_default/sottero-and-midgley-fall-winter-2017-gavin-ivory-chapel-train-open-back-ball-gown-sleeveless-satin-beading-wedding-gown.jpg" alt="Sottero and Midgley Fall/Winter 2017 Gavin Ivory Chapel Train Open Back Ball Gown Sleeveless Satin Beading Wedding Gown 0" /></a>
+<a href="https://www.idealgown.com/en/sottero-and-midgley/6900-sottero-and-midgley-fall-winter-2017-gavin-ivory-chapel-train-open-back-ball-gown-sleeveless-satin-beading-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/17696-thickbox_default/sottero-and-midgley-fall-winter-2017-gavin-ivory-chapel-train-open-back-ball-gown-sleeveless-satin-beading-wedding-gown.jpg" alt="Sottero and Midgley Fall/Winter 2017 Gavin Ivory Chapel Train Open Back Ball Gown Sleeveless Satin Beading Wedding Gown 1" /></a>
+<a href="https://www.idealgown.com/en/sottero-and-midgley/6900-sottero-and-midgley-fall-winter-2017-gavin-ivory-chapel-train-open-back-ball-gown-sleeveless-satin-beading-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/17695-thickbox_default/sottero-and-midgley-fall-winter-2017-gavin-ivory-chapel-train-open-back-ball-gown-sleeveless-satin-beading-wedding-gown.jpg" alt="Sottero and Midgley Fall/Winter 2017 Gavin Ivory Chapel Train Open Back Ball Gown Sleeveless Satin Beading Wedding Gown 2" /></a>
+<a href="https://www.idealgown.com/en/sottero-and-midgley/6900-sottero-and-midgley-fall-winter-2017-gavin-ivory-chapel-train-open-back-ball-gown-sleeveless-satin-beading-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/17694-thickbox_default/sottero-and-midgley-fall-winter-2017-gavin-ivory-chapel-train-open-back-ball-gown-sleeveless-satin-beading-wedding-gown.jpg" alt="Sottero and Midgley Fall/Winter 2017 Gavin Ivory Chapel Train Open Back Ball Gown Sleeveless Satin Beading Wedding Gown 3" /></a>
+<a href="https://www.idealgown.com/en/sottero-and-midgley/6900-sottero-and-midgley-fall-winter-2017-gavin-ivory-chapel-train-open-back-ball-gown-sleeveless-satin-beading-wedding-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/17693-thickbox_default/sottero-and-midgley-fall-winter-2017-gavin-ivory-chapel-train-open-back-ball-gown-sleeveless-satin-beading-wedding-gown.jpg" alt="Sottero and Midgley Fall/Winter 2017 Gavin Ivory Chapel Train Open Back Ball Gown Sleeveless Satin Beading Wedding Gown 4" /></a>
+
+Buy it: [Sottero and Midgley Fall/Winter 2017 Gavin Ivory Chapel Train Open Back Ball Gown Sleeveless Satin Beading Wedding Gown](https://www.idealgown.com/en/sottero-and-midgley/6900-sottero-and-midgley-fall-winter-2017-gavin-ivory-chapel-train-open-back-ball-gown-sleeveless-satin-beading-wedding-gown.html "Sottero and Midgley Fall/Winter 2017 Gavin Ivory Chapel Train Open Back Ball Gown Sleeveless Satin Beading Wedding Gown")
+
+View more: [Sottero and Midgley](https://www.idealgown.com/en/98-sottero-and-midgley "Sottero and Midgley")
