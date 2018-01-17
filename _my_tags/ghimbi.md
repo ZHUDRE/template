@@ -1,0 +1,4 @@
+---
+slug: ghimbi
+name: ghimbi
+---
