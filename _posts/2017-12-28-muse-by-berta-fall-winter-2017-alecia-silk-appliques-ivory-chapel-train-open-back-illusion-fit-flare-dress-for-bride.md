@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-12-28'
+title: "Muse by Berta Fall/Winter 2017 ALECIA Silk Appliques Ivory Chapel Train Open Back Illusion Fit & Flare Dress For Bride"
+category: Berta
+tags: ["charming","muse","illusion","dress","back"]
+image: http://img.idealgown.com/25134-thickbox_default/muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.jpg
+---
+Muse by Berta Fall/Winter 2017 ALECIA Silk Appliques Ivory Chapel Train Open Back Illusion Fit & Flare Dress For Bride
+
+On Sales: **$388.98**
+<a href="https://www.idealgown.com/en/berta/9866-muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25134-thickbox_default/muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.jpg" alt="Muse by Berta Fall/Winter 2017 ALECIA Silk Appliques Ivory Chapel Train Open Back Illusion Fit & Flare Dress For Bride 0" /></a>
+<a href="https://www.idealgown.com/en/berta/9866-muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25139-thickbox_default/muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.jpg" alt="Muse by Berta Fall/Winter 2017 ALECIA Silk Appliques Ivory Chapel Train Open Back Illusion Fit & Flare Dress For Bride 1" /></a>
+<a href="https://www.idealgown.com/en/berta/9866-muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25138-thickbox_default/muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.jpg" alt="Muse by Berta Fall/Winter 2017 ALECIA Silk Appliques Ivory Chapel Train Open Back Illusion Fit & Flare Dress For Bride 2" /></a>
+<a href="https://www.idealgown.com/en/berta/9866-muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25137-thickbox_default/muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.jpg" alt="Muse by Berta Fall/Winter 2017 ALECIA Silk Appliques Ivory Chapel Train Open Back Illusion Fit & Flare Dress For Bride 3" /></a>
+<a href="https://www.idealgown.com/en/berta/9866-muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25136-thickbox_default/muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.jpg" alt="Muse by Berta Fall/Winter 2017 ALECIA Silk Appliques Ivory Chapel Train Open Back Illusion Fit & Flare Dress For Bride 4" /></a>
+<a href="https://www.idealgown.com/en/berta/9866-muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25135-thickbox_default/muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.jpg" alt="Muse by Berta Fall/Winter 2017 ALECIA Silk Appliques Ivory Chapel Train Open Back Illusion Fit & Flare Dress For Bride 5" /></a>
+
+Buy it: [Muse by Berta Fall/Winter 2017 ALECIA Silk Appliques Ivory Chapel Train Open Back Illusion Fit & Flare Dress For Bride](https://www.idealgown.com/en/berta/9866-muse-by-berta-fall-winter-2017-alecia-silk-appliques-ivory-chapel-train-open-back-illusion-fit-flare-dress-for-bride.html "Muse by Berta Fall/Winter 2017 ALECIA Silk Appliques Ivory Chapel Train Open Back Illusion Fit & Flare Dress For Bride")
+
+View more: [Berta](https://www.idealgown.com/en/116-berta "Berta")
