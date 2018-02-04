@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-11-04'
+title: "BHLDN Spring/Summer 2018 Octavia Simple Chapel Train Ivory Aline V-Neck Sleeveless with Sash Satin Bridal Gown"
+category: BHLDN
+tags: ["wedding","spring","chapel","sash","ivory"]
+image: http://img.idealgown.com/26127-thickbox_default/bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.jpg
+---
+BHLDN Spring/Summer 2018 Octavia Simple Chapel Train Ivory Aline V-Neck Sleeveless with Sash Satin Bridal Gown
+
+On Sales: **$268.98**
+<a href="https://www.idealgown.com/en/bhldn/10184-bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26127-thickbox_default/bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.jpg" alt="BHLDN Spring/Summer 2018 Octavia Simple Chapel Train Ivory Aline V-Neck Sleeveless with Sash Satin Bridal Gown 0" /></a>
+<a href="https://www.idealgown.com/en/bhldn/10184-bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26132-thickbox_default/bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.jpg" alt="BHLDN Spring/Summer 2018 Octavia Simple Chapel Train Ivory Aline V-Neck Sleeveless with Sash Satin Bridal Gown 1" /></a>
+<a href="https://www.idealgown.com/en/bhldn/10184-bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26131-thickbox_default/bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.jpg" alt="BHLDN Spring/Summer 2018 Octavia Simple Chapel Train Ivory Aline V-Neck Sleeveless with Sash Satin Bridal Gown 2" /></a>
+<a href="https://www.idealgown.com/en/bhldn/10184-bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26130-thickbox_default/bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.jpg" alt="BHLDN Spring/Summer 2018 Octavia Simple Chapel Train Ivory Aline V-Neck Sleeveless with Sash Satin Bridal Gown 3" /></a>
+<a href="https://www.idealgown.com/en/bhldn/10184-bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26129-thickbox_default/bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.jpg" alt="BHLDN Spring/Summer 2018 Octavia Simple Chapel Train Ivory Aline V-Neck Sleeveless with Sash Satin Bridal Gown 4" /></a>
+<a href="https://www.idealgown.com/en/bhldn/10184-bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/26128-thickbox_default/bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.jpg" alt="BHLDN Spring/Summer 2018 Octavia Simple Chapel Train Ivory Aline V-Neck Sleeveless with Sash Satin Bridal Gown 5" /></a>
+
+Buy it: [BHLDN Spring/Summer 2018 Octavia Simple Chapel Train Ivory Aline V-Neck Sleeveless with Sash Satin Bridal Gown](https://www.idealgown.com/en/bhldn/10184-bhldn-spring-summer-2018-octavia-simple-chapel-train-ivory-aline-v-neck-sleeveless-with-sash-satin-bridal-gown.html "BHLDN Spring/Summer 2018 Octavia Simple Chapel Train Ivory Aline V-Neck Sleeveless with Sash Satin Bridal Gown")
+
+View more: [BHLDN](https://www.idealgown.com/en/149-bhldn "BHLDN")
