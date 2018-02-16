@@ -3,7 +3,7 @@ layout: post
 date: '2017-11-20'
 title: "Maggie Sottero Fall/Winter 2017 Jaslynn Lace Ivory Sweet Chapel Train Sleeveless Sweetheart with Sash Sheath Dress For Bride"
 category: Maggie Sottero
-tags: ["gowns","sleeveless","demure","train","wedding"]
+tags: ["fall","chapel","dresses","bride","train"]
 image: http://img.idealgown.com/22428-thickbox_default/maggie-sottero-fall-winter-2017-jaslynn-lace-ivory-sweet-chapel-train-sleeveless-sweetheart-with-sash-sheath-dress-for-bride.jpg
 ---
 Maggie Sottero Fall/Winter 2017 Jaslynn Lace Ivory Sweet Chapel Train Sleeveless Sweetheart with Sash Sheath Dress For Bride
