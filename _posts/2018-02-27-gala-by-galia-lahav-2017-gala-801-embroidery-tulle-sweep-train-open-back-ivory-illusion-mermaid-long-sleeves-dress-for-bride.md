@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2018-02-27'
+title: "Gala by Galia Lahav 2017 GALA-801 Embroidery Tulle Sweep Train Open Back Ivory Illusion Mermaid Long Sleeves Dress For Bride"
+category: Galia Lahav
+tags: ["bride","prom","dresses","wedding","open"]
+image: http://img.idealgown.com/25167-thickbox_default/gala-by-galia-lahav-2017-gala-801-embroidery-tulle-sweep-train-open-back-ivory-illusion-mermaid-long-sleeves-dress-for-bride.jpg
+---
+Gala by Galia Lahav 2017 GALA-801 Embroidery Tulle Sweep Train Open Back Ivory Illusion Mermaid Long Sleeves Dress For Bride
+
+On Sales: **$428.98**
+<a href="https://www.idealgown.com/en/galia-lahav/9874-gala-by-galia-lahav-2017-gala-801-embroidery-tulle-sweep-train-open-back-ivory-illusion-mermaid-long-sleeves-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25167-thickbox_default/gala-by-galia-lahav-2017-gala-801-embroidery-tulle-sweep-train-open-back-ivory-illusion-mermaid-long-sleeves-dress-for-bride.jpg" alt="Gala by Galia Lahav 2017 GALA-801 Embroidery Tulle Sweep Train Open Back Ivory Illusion Mermaid Long Sleeves Dress For Bride 0" /></a>
+<a href="https://www.idealgown.com/en/galia-lahav/9874-gala-by-galia-lahav-2017-gala-801-embroidery-tulle-sweep-train-open-back-ivory-illusion-mermaid-long-sleeves-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25171-thickbox_default/gala-by-galia-lahav-2017-gala-801-embroidery-tulle-sweep-train-open-back-ivory-illusion-mermaid-long-sleeves-dress-for-bride.jpg" alt="Gala by Galia Lahav 2017 GALA-801 Embroidery Tulle Sweep Train Open Back Ivory Illusion Mermaid Long Sleeves Dress For Bride 1" /></a>
+<a href="https://www.idealgown.com/en/galia-lahav/9874-gala-by-galia-lahav-2017-gala-801-embroidery-tulle-sweep-train-open-back-ivory-illusion-mermaid-long-sleeves-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25170-thickbox_default/gala-by-galia-lahav-2017-gala-801-embroidery-tulle-sweep-train-open-back-ivory-illusion-mermaid-long-sleeves-dress-for-bride.jpg" alt="Gala by Galia Lahav 2017 GALA-801 Embroidery Tulle Sweep Train Open Back Ivory Illusion Mermaid Long Sleeves Dress For Bride 2" /></a>
+<a href="https://www.idealgown.com/en/galia-lahav/9874-gala-by-galia-lahav-2017-gala-801-embroidery-tulle-sweep-train-open-back-ivory-illusion-mermaid-long-sleeves-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25169-thickbox_default/gala-by-galia-lahav-2017-gala-801-embroidery-tulle-sweep-train-open-back-ivory-illusion-mermaid-long-sleeves-dress-for-bride.jpg" alt="Gala by Galia Lahav 2017 GALA-801 Embroidery Tulle Sweep Train Open Back Ivory Illusion Mermaid Long Sleeves Dress For Bride 3" /></a>
+<a href="https://www.idealgown.com/en/galia-lahav/9874-gala-by-galia-lahav-2017-gala-801-embroidery-tulle-sweep-train-open-back-ivory-illusion-mermaid-long-sleeves-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/25168-thickbox_default/gala-by-galia-lahav-2017-gala-801-embroidery-tulle-sweep-train-open-back-ivory-illusion-mermaid-long-sleeves-dress-for-bride.jpg" alt="Gala by Galia Lahav 2017 GALA-801 Embroidery Tulle Sweep Train Open Back Ivory Illusion Mermaid Long Sleeves Dress For Bride 4" /></a>
+
+Buy it: [Gala by Galia Lahav 2017 GALA-801 Embroidery Tulle Sweep Train Open Back Ivory Illusion Mermaid Long Sleeves Dress For Bride](https://www.idealgown.com/en/galia-lahav/9874-gala-by-galia-lahav-2017-gala-801-embroidery-tulle-sweep-train-open-back-ivory-illusion-mermaid-long-sleeves-dress-for-bride.html "Gala by Galia Lahav 2017 GALA-801 Embroidery Tulle Sweep Train Open Back Ivory Illusion Mermaid Long Sleeves Dress For Bride")
+
+View more: [Galia Lahav](https://www.idealgown.com/en/114-galia-lahav "Galia Lahav")
