@@ -1,0 +1,4 @@
+---
+slug: amaya
+name: amaya
+---
