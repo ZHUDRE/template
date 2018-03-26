@@ -1,0 +1,21 @@
+---
+layout: post
+date: '2017-12-25'
+title: "Lusan Mandongus 2017 Leonids Chapel Train Elegant Ivory Cap Sleeves Sheath Bateau Embroidery Lace Bridal Dress"
+category: Lusan Mandongus
+tags: ["prom","embroidery","demure","charming","lace"]
+image: http://img.idealgown.com/21023-thickbox_default/lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.jpg
+---
+Lusan Mandongus 2017 Leonids Chapel Train Elegant Ivory Cap Sleeves Sheath Bateau Embroidery Lace Bridal Dress
+
+On Sales: **$458.98**
+<a href="https://www.idealgown.com/en/lusan-mandongus/7891-lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/21023-thickbox_default/lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.jpg" alt="Lusan Mandongus 2017 Leonids Chapel Train Elegant Ivory Cap Sleeves Sheath Bateau Embroidery Lace Bridal Dress 0" /></a>
+<a href="https://www.idealgown.com/en/lusan-mandongus/7891-lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/21028-thickbox_default/lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.jpg" alt="Lusan Mandongus 2017 Leonids Chapel Train Elegant Ivory Cap Sleeves Sheath Bateau Embroidery Lace Bridal Dress 1" /></a>
+<a href="https://www.idealgown.com/en/lusan-mandongus/7891-lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/21027-thickbox_default/lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.jpg" alt="Lusan Mandongus 2017 Leonids Chapel Train Elegant Ivory Cap Sleeves Sheath Bateau Embroidery Lace Bridal Dress 2" /></a>
+<a href="https://www.idealgown.com/en/lusan-mandongus/7891-lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/21026-thickbox_default/lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.jpg" alt="Lusan Mandongus 2017 Leonids Chapel Train Elegant Ivory Cap Sleeves Sheath Bateau Embroidery Lace Bridal Dress 3" /></a>
+<a href="https://www.idealgown.com/en/lusan-mandongus/7891-lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/21025-thickbox_default/lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.jpg" alt="Lusan Mandongus 2017 Leonids Chapel Train Elegant Ivory Cap Sleeves Sheath Bateau Embroidery Lace Bridal Dress 4" /></a>
+<a href="https://www.idealgown.com/en/lusan-mandongus/7891-lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/21024-thickbox_default/lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.jpg" alt="Lusan Mandongus 2017 Leonids Chapel Train Elegant Ivory Cap Sleeves Sheath Bateau Embroidery Lace Bridal Dress 5" /></a>
+
+Buy it: [Lusan Mandongus 2017 Leonids Chapel Train Elegant Ivory Cap Sleeves Sheath Bateau Embroidery Lace Bridal Dress](https://www.idealgown.com/en/lusan-mandongus/7891-lusan-mandongus-2017-leonids-chapel-train-elegant-ivory-cap-sleeves-sheath-bateau-embroidery-lace-bridal-dress.html "Lusan Mandongus 2017 Leonids Chapel Train Elegant Ivory Cap Sleeves Sheath Bateau Embroidery Lace Bridal Dress")
+
+View more: [Lusan Mandongus](https://www.idealgown.com/en/66-lusan-mandongus "Lusan Mandongus")
