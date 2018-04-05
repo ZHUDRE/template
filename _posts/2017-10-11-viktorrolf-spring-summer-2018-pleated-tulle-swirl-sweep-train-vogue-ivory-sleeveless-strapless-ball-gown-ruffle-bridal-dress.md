@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-10-11'
+title: "Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress"
+category: Viktor & Rolf
+tags: ["prom","ivory","wedding","gowns","train"]
+image: http://img.idealgown.com/18213-thickbox_default/viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.jpg
+---
+Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress
+
+On Sales: **$388.98**
+<a href="https://www.idealgown.com/en/viktor-rolf/7032-viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/18213-thickbox_default/viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.jpg" alt="Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress 0" /></a>
+<a href="https://www.idealgown.com/en/viktor-rolf/7032-viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/18217-thickbox_default/viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.jpg" alt="Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress 1" /></a>
+<a href="https://www.idealgown.com/en/viktor-rolf/7032-viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/18216-thickbox_default/viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.jpg" alt="Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress 2" /></a>
+<a href="https://www.idealgown.com/en/viktor-rolf/7032-viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/18215-thickbox_default/viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.jpg" alt="Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress 3" /></a>
+<a href="https://www.idealgown.com/en/viktor-rolf/7032-viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/18214-thickbox_default/viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.jpg" alt="Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress 4" /></a>
+
+Buy it: [Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress](https://www.idealgown.com/en/viktor-rolf/7032-viktor-rolf-spring-summer-2018-pleated-tulle-swirl-sweep-train-vogue-ivory-sleeveless-strapless-ball-gown-ruffle-bridal-dress.html "Viktor&Rolf Spring/Summer 2018 Pleated Tulle Swirl Sweep Train Vogue Ivory Sleeveless Strapless Ball Gown Ruffle Bridal Dress")
+
+View more: [Viktor & Rolf](https://www.idealgown.com/en/130-viktor-rolf "Viktor & Rolf")
