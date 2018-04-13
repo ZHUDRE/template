@@ -3,7 +3,7 @@ layout: post
 date: '2017-11-20'
 title: "Casablanca Bridal - Style 1876"
 category: Casablanca
-tags: ["dresses","style","prom","gowns","wedding"]
+tags: ["prom","dresses","demure","style","elegant"]
 image: http://img.idealgown.com/5410-thickbox_default/casablanca-bridal-style-1876.jpg
 ---
 Casablanca Bridal - Style 1876
