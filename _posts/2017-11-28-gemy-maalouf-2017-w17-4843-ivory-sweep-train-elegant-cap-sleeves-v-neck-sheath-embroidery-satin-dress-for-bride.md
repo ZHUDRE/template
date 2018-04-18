@@ -3,7 +3,7 @@ layout: post
 date: '2017-11-28'
 title: "Gemy Maalouf 2017 W17 4843 Ivory Sweep Train Elegant Cap Sleeves V-Neck Sheath Embroidery Satin Dress For Bride"
 category: Gemy Maalouf
-tags: ["dresses","ivory","satin","wedding","gowns"]
+tags: ["neck","dress","bride","ivory","wedding"]
 image: http://img.idealgown.com/22598-thickbox_default/gemy-maalouf-2017-w17-4843-ivory-sweep-train-elegant-cap-sleeves-v-neck-sheath-embroidery-satin-dress-for-bride.jpg
 ---
 Gemy Maalouf 2017 W17 4843 Ivory Sweep Train Elegant Cap Sleeves V-Neck Sheath Embroidery Satin Dress For Bride
