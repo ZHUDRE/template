@@ -1,0 +1,4 @@
+---
+slug: mindy
+name: mindy
+---
