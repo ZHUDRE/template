@@ -3,7 +3,7 @@ layout: post
 date: '2017-11-03'
 title: "Ella Rosa Spring/Summer 2017 BE385 Cap Sleeves Aline Chapel Train Illusion Sweet Pink Tulle Embroidery Bridal Dress"
 category: Ella Rosa Bridal
-tags: ["illusion","aline","pink","bridal","charming"]
+tags: ["sleeves","chapel","summer","sweet","dresses"]
 image: http://img.idealgown.com/21484-thickbox_default/ella-rosa-spring-summer-2017-be385-cap-sleeves-aline-chapel-train-illusion-sweet-pink-tulle-embroidery-bridal-dress.jpg
 ---
 Ella Rosa Spring/Summer 2017 BE385 Cap Sleeves Aline Chapel Train Illusion Sweet Pink Tulle Embroidery Bridal Dress
