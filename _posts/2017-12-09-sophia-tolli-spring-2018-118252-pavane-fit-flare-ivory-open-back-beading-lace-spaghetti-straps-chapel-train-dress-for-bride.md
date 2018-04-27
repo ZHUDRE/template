@@ -1,0 +1,20 @@
+---
+layout: post
+date: '2017-12-09'
+title: "Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride"
+category: Sophia Tolli Bridal
+tags: ["beading","sophia","dresses","ivory","demure"]
+image: http://img.idealgown.com/29834-thickbox_default/sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.jpg
+---
+Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride
+
+On Sales: **$478.98**
+<a href="https://www.idealgown.com/en/sophia-tolli-bridal/11180-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/29834-thickbox_default/sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.jpg" alt="Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride 0" /></a>
+<a href="https://www.idealgown.com/en/sophia-tolli-bridal/11180-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/29838-thickbox_default/sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.jpg" alt="Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride 1" /></a>
+<a href="https://www.idealgown.com/en/sophia-tolli-bridal/11180-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/29837-thickbox_default/sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.jpg" alt="Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride 2" /></a>
+<a href="https://www.idealgown.com/en/sophia-tolli-bridal/11180-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/29836-thickbox_default/sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.jpg" alt="Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride 3" /></a>
+<a href="https://www.idealgown.com/en/sophia-tolli-bridal/11180-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html"><amp-img layout="responsive" width="600" height="600" src="//img.idealgown.com/29835-thickbox_default/sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.jpg" alt="Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride 4" /></a>
+
+Buy it: [Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride](https://www.idealgown.com/en/sophia-tolli-bridal/11180-sophia-tolli-spring-2018-118252-pavane-fit-flare-ivory-open-back-beading-lace-spaghetti-straps-chapel-train-dress-for-bride.html "Sophia Tolli spring 2018 118252 Pavane Fit & Flare Ivory Open Back Beading Lace Spaghetti Straps Chapel Train Dress For Bride")
+
+View more: [Sophia Tolli Bridal](https://www.idealgown.com/en/52-sophia-tolli-bridal "Sophia Tolli Bridal")
